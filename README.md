@@ -1,2 +1,2 @@
 # desgraça online
-tipo assim, fdskkk a Lívia que mandou kkkk
+tipo assim, fdskkk a Livia que mandou kkkk
